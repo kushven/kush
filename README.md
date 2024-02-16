@@ -1,0 +1,2 @@
+# kush
+rom rom bhaiyooo
